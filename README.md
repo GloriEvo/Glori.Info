@@ -1,5 +1,4 @@
-# Glori.Info https://glorievo.straw.page
-![a66krl](https://github.com/user-attachments/assets/799388b5-e36a-4a84-849c-8be03f08ddd9)
+# Glori.Info
 
 !This account is made specifically and exclusively for Pony Town. I am not a coder!
 
